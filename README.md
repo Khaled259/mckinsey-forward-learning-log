@@ -1,0 +1,1 @@
+# mckinsey-forward-learning-log
